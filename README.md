@@ -1,4 +1,6 @@
 # TOV-WEB
 
-> <b>NOTION: </b><br/>
-https://www.notion.so/779583d5da4e4e5d95cecd9335c7e2a3?v=3ca4b48d900b4ed3a4ede413687329ce
+> <b><a href='https://trusting-bloom-e44.notion.site/f6a5a4483ed543c9b3b7a1c99c3f387e?v=3fa67f4db88f487482de5fb30578c979'> 
+    NOTION >>
+  </a></b><br/>
+
